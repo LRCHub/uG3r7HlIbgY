@@ -1,4 +1,4 @@
-# Galileo Galilei – 青い栞
+# Galileo Galilei – 青い栞 - Aoi Shiori
 
 > **歌詞登録ステータス：同期歌詞あり**
 
